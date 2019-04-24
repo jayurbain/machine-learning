@@ -351,3 +351,6 @@ Outcomes addressed in week 10:
 Final Exam: Monday, 8-10AM, S243.
 
 
+Thomas More Catholic Church, 215 Thomas More Drive, Elgin
+
+ where she was a parishioner. Visitation will be held on Friday morning at the church from 9:30 AM until the time of mass. In lieu of flowers, the family requests donations be made to Ronald McDonald House.
